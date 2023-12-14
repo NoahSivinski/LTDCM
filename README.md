@@ -1,1 +1,1 @@
-Website for Living the Dream Captial Management
+Website for Living the Dream Capital Management
